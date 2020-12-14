@@ -1,0 +1,1 @@
+Apple tarts with Calvados is an iconic French dish which is simple and mouth watering. This dish's Apple sauce and Calvados creame acts like pixi dust, making it more intriguing.
